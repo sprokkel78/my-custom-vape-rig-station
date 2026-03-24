@@ -1,6 +1,6 @@
 # My Custom Vape Rig station
 
-![Screenshot](https://github.com/sprokkel78/gtodo/blob/main/screenshot.png)
+![Screenshot](https://github.com/sprokkel78/my-custom-vape-rig-station/blob/main/screenshot.png)
 
 Put the Volcano on the small table, connect the ballon and fill it. 
 
