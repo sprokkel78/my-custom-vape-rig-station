@@ -4,7 +4,7 @@
 
 ![Screenshot](https://github.com/sprokkel78/my-custom-vape-rig-station/blob/main/screenshot1.png)
 
-Put the Volcano on the small table, connect the ballon and fill it. 
+Put the Volcano on the small table, connect the balloon and fill it. 
 
 Then connect the balloon to the tube adapter and roll awaaay!
 
