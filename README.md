@@ -13,3 +13,5 @@ More info on how to build it will follow soon.
 This is v1.0 Proof of Concept.
 
 My Pleasure.
+
+"Does it fit in an airplane? - Well, I think it does."
