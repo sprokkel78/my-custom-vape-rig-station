@@ -6,7 +6,7 @@
 
 Put the Volcano on the small table, connect the balloon and fill it. 
 
-Then connect the balloon to the tube adapter and roll awaaay!
+Then connect the balloon to the tube adapter (see IMG 3864)* and roll awaaay!
 
 Get comfortable where-ever.
 
@@ -19,3 +19,5 @@ My Pleasure.
 [Watch the video](https://www.youtube.com/watch?v=OjiS20NqNqs)
 
 You need a Polar Blast Bong as well, https://thepolarblast.com/collections/tumblers/products/single-color-polar-blast
+
+* made from a garden hose connector.
