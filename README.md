@@ -17,3 +17,5 @@ My Pleasure.
 "Does it fit in an airplane? - Well, I think it does."
 
 [Watch the video](https://www.youtube.com/watch?v=OjiS20NqNqs)
+
+You need a Polar Blast Bong as well, https://thepolarblast.com/collections/tumblers/products/single-color-polar-blast
