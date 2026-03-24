@@ -21,3 +21,5 @@ My Pleasure.
 You need a Polar Blast Bong as well, https://thepolarblast.com/collections/tumblers/products/single-color-polar-blast
 
 * made from a garden hose connector.
+
+- send me yours -> sprokkel78.bart@gmail.com
