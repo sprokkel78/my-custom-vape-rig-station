@@ -10,8 +10,6 @@ Then connect the balloon to the tube adapter and roll awaaay!
 
 Get comfortable where-ever.
 
-More info on how to build it will follow soon.
-
 This is v1.0 Proof of Concept.
 
 My Pleasure.
